@@ -10,8 +10,6 @@ I go any names you'd like to call me by ! I don't mind any pronouns as I am Gend
 
  feel free to be my frend !! but plz read my rentry byi (before you interact) first!! I am a nice if you get to understand me tho.. 
  
-don't copy my ponies plz.. or I will crash out on you... inspo is fine, just.. don't take my entire pony.
- 
- ≻───────── ⋆✩⋆ ──────────≺
+  ≻───────── ⋆✩⋆ ──────────≺
 
  ![](https://files.catbox.moe/02nrl6.gif)
