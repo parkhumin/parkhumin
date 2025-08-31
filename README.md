@@ -2,7 +2,7 @@
  haii sign my ata plz,, paws at you..
  ≻───────── ⋆✩⋆ ──────────≺
  
-I go any names you'd like to call me by ! refer me as any pronouns, more info on rentry and pronouns page ^o^ I'm also pansexual and ambiamorous. 
+I go any names you'd like to call me by ! refer me as any pronouns, more info on rentry and pronouns page ^o^ I'm also pansexual and grayromantic. 
 
  𝑪+𝑯 𝒊𝒔 𝒂𝒑𝒑𝒓𝒆𝒄𝒊𝒂𝒕𝒆𝒅 𝒂𝒍𝒍 𝒕𝒉𝒆 𝒕𝒊𝒎𝒆 :3 and I accept all friend requests as well.
 
